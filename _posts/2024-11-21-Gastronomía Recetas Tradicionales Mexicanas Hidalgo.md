@@ -1,13 +1,12 @@
 # Índice
-1. ACANATZTLE [EnlaceDirecto1](#EnlaceDirecto1)
-1. SALSA DE MORA CON XOCONOSTLE [EnlaceDirecto2](#EnlaceDirecto2)
-2. DULCE DE CHILACAYOTE [EnlaceDirecto3](#EnlaceDirecto3)
-3. TORTITAS DE CILANTRO EN CALDO ROJO [EnlaceDirecto4](#EnlaceDirecto4)
-4. GUALUMBOS CON HUEVO [EnlaceDirecto5](#EnlaceDirecto5)
-5. FLOR DE PALMA EN SALSA VERDE [EnlaceDirecto6](#EnlaceDirecto6)
-6. ATOLE DE ACACHUL [EnlaceDirecto7](#EnlaceDirecto7)
+1. ACANATZTLE 
+1. SALSA DE MORA CON XOCONOSTLE 
+2. DULCE DE CHILACAYOTE 
+3. TORTITAS DE CILANTRO EN CALDO ROJO 
+4. GUALUMBOS CON HUEVO 
+5. FLOR DE PALMA EN SALSA VERDE 
+6. ATOLE DE ACACHUL 
 
-###### EnlaceDirecto1
 ## **ACANATZTLE**
 
 **Ingredientes:**
@@ -47,7 +46,6 @@ Las habas son una fuente excelente de proteínas vegetales, fibra y hierro, esen
 
 El cultivo de habas requiere menos agua que otros granos y enriquece el suelo al fijar nitrógeno. Las hojas de papatla provienen de una planta nativa, fácil de sembrar en patios o áreas comunitarias.
 
-###### EnlaceDirecto2
 ## **SALSA DE MORA CON XOCONOSTLE**
 
 **Ingredientes:**
@@ -83,7 +81,6 @@ El xoconostle es rico en antioxidantes, fibra y vitamina C, mientras que los chi
 
 El xoconostle es un subproducto del nopal, una planta altamente resiliente que requiere poca agua y contribuye a la recuperación de suelos erosionados.
 
-###### EnlaceDirecto3
 ## **DULCE DE CHILACAYOTE**
 
 **Ingredientes:**
@@ -116,7 +113,6 @@ El chilacayote es bajo en calorías, rico en agua y fibra, ideal para una dieta 
 
 El chilacayote puede cultivarse en huertos familiares con poco mantenimiento. La panela, al ser local, reduce la huella de carbono comparada con el azúcar refinado.
 
-###### EnlaceDirecto4
 ## **TORTITAS DE CILANTRO EN CALDO ROJO**
 
 **Ingredientes:**
@@ -170,7 +166,7 @@ Esta receta es rica en antioxidantes, gracias al cilantro y al jitomate. Proporc
 **Ingredientes sustentables:**  
 
 El cilantro, jitomate, queso local y huevos son ingredientes que, si se obtienen de productores locales, minimizan el impacto ambiental. La reutilización de los tallos del cilantro también evita desperdicios.
-###### EnlaceDirecto5
+
 ### **GUALUMBOS CON HUEVO**
 
 **Ingredientes:**
@@ -208,7 +204,6 @@ Los gualumbos aportan fibra, proteínas vegetales y minerales como el calcio. Ju
 
 El maguey es una planta endémica que no requiere fertilizantes ni pesticidas químicos, haciendo sus flores altamente sustentables. Además, el uso de manteca de origen local apoya la producción regional.
 
-###### EnlaceDirecto6
 ### **FLOR DE PALMA EN SALSA VERDE**
 
 **Ingredientes:**
@@ -246,7 +241,6 @@ Rica en calcio, proteínas y fibra, la flor de palma apoya la salud ósea y dige
 **Ingredientes sustentables:**  
 La flor de palma es un ingrediente autóctono de México, cultivado sin intervención industrial. Además, los tomates y chiles poblanos pueden adquirirse de huertos locales, reduciendo emisiones asociadas al transporte.
 
-###### EnlaceDirecto7
 ### **ATOLE DE ACACHUL**
 ![[Pasted image 20241121114059.png]]
 PERFECTO PARA ESTAS TEMPORADAS DE INVIERNO
