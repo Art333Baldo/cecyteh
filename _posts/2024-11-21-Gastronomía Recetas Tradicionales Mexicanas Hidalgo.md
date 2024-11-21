@@ -32,28 +32,21 @@
 
 **¿Sabías qué?**
 
-```
 Las hojas de papatla eran usadas por los aztecas en rituales y para la alimentación antes de la llegada de la planta de plátano a México.
-```
 
 **Ingredientes sustentables:**
 
-```
 Habas, ricas en proteínas y fáciles de cultivar en climas de Hidalgo.
 Hojas de papatla, de bajo impacto ambiental, sustituyendo hojas de plátano que no son autóctonas.
-```
 
 **Impacto nutricional:** 
 
-```
 Las habas son una fuente excelente de proteínas vegetales, fibra y hierro, esenciales para prevenir la anemia y fortalecer el sistema inmunológico.
-```
 
 **Forma ecológica:**  
 
-```
 El cultivo de habas requiere menos agua que otros granos y enriquece el suelo al fijar nitrógeno. Las hojas de papatla provienen de una planta nativa, fácil de sembrar en patios o áreas comunitarias.
-```
+
 ###### EnlaceDirecto2
 ## **SALSA DE MORA CON XOCONOSTLE**
 
@@ -76,27 +69,20 @@ El cultivo de habas requiere menos agua que otros granos y enriquece el suelo al
 
 **¿Sabías qué?**  
 
-```
 El xoconostle mejora las funciones gastrointestinales gracias a su contenido de fibra y antioxidantes.
-```
 
 **Ingredientes sustentables:**
 
-```
 Chiles moras y xoconostle, autóctonos de la región, adaptados al clima semiárido.
-```
 
 **Impacto nutricional:**  
 
-```
 El xoconostle es rico en antioxidantes, fibra y vitamina C, mientras que los chiles moras aportan un toque picante con beneficios antioxidantes.
-```
 
 **Forma ecológica:**  
 
-```
 El xoconostle es un subproducto del nopal, una planta altamente resiliente que requiere poca agua y contribuye a la recuperación de suelos erosionados.
-```
+
 ###### EnlaceDirecto3
 ## **DULCE DE CHILACAYOTE**
 
@@ -115,28 +101,21 @@ El xoconostle es un subproducto del nopal, una planta altamente resiliente que r
 
 **¿Sabías qué?**  
 
-```
 La panela, conocida como chancaca, es una alternativa más saludable al azúcar refinada, ya que no aporta calorías vacías.
-```
 
 **Ingredientes sustentables:**
 
-```
 Chilacayote, una calabaza autóctona de México, adaptada al clima de Hidalgo.
 Panela como endulzante natural y local.
-```
 
 **Impacto nutricional:**  
 
-```
 El chilacayote es bajo en calorías, rico en agua y fibra, ideal para una dieta equilibrada. La panela, al no estar refinada, conserva vitaminas y minerales como el hierro.
-```
 
 **Forma ecológica:**  
 
-```
 El chilacayote puede cultivarse en huertos familiares con poco mantenimiento. La panela, al ser local, reduce la huella de carbono comparada con el azúcar refinado.
-```
+
 ###### EnlaceDirecto4
 ## **TORTITAS DE CILANTRO EN CALDO ROJO**
 
@@ -178,27 +157,19 @@ El chilacayote puede cultivarse en huertos familiares con poco mantenimiento. La
 
 **¿Sabías qué?**  
 
-```
 El cilantro es una hierba aromática ampliamente usada en América Latina, conocida por su capacidad para mejorar la digestión y su alto contenido en antioxidantes. Además, tanto sus hojas como sus tallos pueden ser usados como sazonadores naturales.
-```
 
 **Forma ecológica:**  
 
-```
 El cilantro es una planta fácil de cultivar en casa, incluso en macetas pequeñas, lo que reduce la huella de carbono al evitar su transporte. Además, usar queso y vegetales locales asegura menor impacto ambiental y fomenta la economía circular.
-```
 
 **Impacto nutricional:**  
 
-```
 Esta receta es rica en antioxidantes, gracias al cilantro y al jitomate. Proporciona proteínas de alta calidad del huevo y calcio del queso, siendo un platillo completo para mantener energía y fortalecer los huesos.
-```
 
 **Ingredientes sustentables:**  
 
-```
 El cilantro, jitomate, queso local y huevos son ingredientes que, si se obtienen de productores locales, minimizan el impacto ambiental. La reutilización de los tallos del cilantro también evita desperdicios.
-```
 ###### EnlaceDirecto5
 ### **GUALUMBOS CON HUEVO**
 
@@ -223,27 +194,20 @@ El cilantro, jitomate, queso local y huevos son ingredientes que, si se obtienen
 
 **¿Sabías qué?**  
 
-```
 Los gualumbos, también conocidos como flores de maguey, son un alimento ancestral de México. Además de su sabor único, son ricos en proteínas y calcio, ideales para una dieta balanceada. Florecen una sola vez en la vida del maguey y son altamente valorados en la gastronomía tradicional.
-```
 
 **Forma ecológica:**  
 
-```
 Los gualumbos provienen del maguey, una planta de bajo consumo de agua que es parte integral de los ecosistemas semiáridos. Su recolección responsable fomenta la sostenibilidad del medio ambiente.
-```
 
 **Impacto nutricional:**  
 
-```
 Los gualumbos aportan fibra, proteínas vegetales y minerales como el calcio. Junto con el huevo, se obtiene una combinación que favorece el fortalecimiento muscular y óseo.
-```
 
 **Ingredientes sustentables:**  
 
-```
 El maguey es una planta endémica que no requiere fertilizantes ni pesticidas químicos, haciendo sus flores altamente sustentables. Además, el uso de manteca de origen local apoya la producción regional.
-```
+
 ###### EnlaceDirecto6
 ### **FLOR DE PALMA EN SALSA VERDE**
 
@@ -301,28 +265,20 @@ PERFECTO PARA ESTAS TEMPORADAS DE INVIERNO
 ![[Pasted image 20241121114136.png]]
 **VALOR NUTRICIONAL**
 
-```
 ACACHUL: POLIFENOLES, FLAVONOIDES, DITERPENOS, GALOTANINOS, ÁCIDOS CLOROGÉNICOS.
 
 CAÑA: CALORÍAS Y CARBOHIDRATOS.
 
 MASA DE MAIZ: VITAMINA C,HIERRO,MANGANESO 
-```
 
 **Forma ecológica:**  
 
-```
 El acachul es una planta silvestre que puede cultivarse en casa sin necesidad de pesticidas o fertilizantes. Su bajo mantenimiento hace que sea ideal para quienes buscan opciones sostenibles.
-```
 
 **Impacto nutricional:**  
 
-```
 Este atole es rico en polifenoles, antioxidantes y vitaminas provenientes del acachul, la caña de azúcar y la masa de maíz. Es una bebida energética y nutritiva para días fríos.
-```
 
 **Ingredientes sustentables:**  
 
-```
 El acachul y la caña de azúcar pueden cultivarse de manera local y orgánica, mientras que la masa de maíz promueve el uso de maíz nativo, protegiendo la biodiversidad agrícola.
-```
