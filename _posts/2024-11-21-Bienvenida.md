@@ -1,5 +1,3 @@
-### **Proyecto: Atlas de Recetas Sustentables para la Seguridad Alimentaria en Hidalgo**
-
 **"Atlas de Recetas Sustentables: Innovación Gastronómica para la Seguridad Alimentaria"**
 
 ### **1. Introducción**
