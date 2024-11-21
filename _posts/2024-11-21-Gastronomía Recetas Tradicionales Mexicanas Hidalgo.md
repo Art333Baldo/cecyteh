@@ -242,7 +242,6 @@ Rica en calcio, proteínas y fibra, la flor de palma apoya la salud ósea y dige
 La flor de palma es un ingrediente autóctono de México, cultivado sin intervención industrial. Además, los tomates y chiles poblanos pueden adquirirse de huertos locales, reduciendo emisiones asociadas al transporte.
 
 ### **ATOLE DE ACACHUL**
-![[Pasted image 20241121114059.png]]
 PERFECTO PARA ESTAS TEMPORADAS DE INVIERNO
 
 **INGREDIENTES**
@@ -255,8 +254,7 @@ PERFECTO PARA ESTAS TEMPORADAS DE INVIERNO
 1. Coloca ½l de agua al fuego,cuando entre en hervor agregaras el acachul, por 5 min luego retira y extrae la pulpa y cuela.
 2. Lleva al fuego el jugo de el acachul, mientras tanto llevarás a acabo sacar tifo el jugo de la caña de azúcar, molerás una porción de masa junto con el jugo de caña.
 3. Agrega tu mezcla de la licuadora a tu olla y no pares de mover hasta que suelte el hervor sirve y disfruta.
-![[Pasted image 20241121114206.png]]
-![[Pasted image 20241121114136.png]]
+
 **VALOR NUTRICIONAL**
 
 ACACHUL: POLIFENOLES, FLAVONOIDES, DITERPENOS, GALOTANINOS, ÁCIDOS CLOROGÉNICOS.
