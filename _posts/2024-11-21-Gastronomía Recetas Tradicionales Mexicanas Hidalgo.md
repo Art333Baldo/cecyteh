@@ -82,6 +82,8 @@ El xoconostle es un subproducto del nopal, una planta altamente resiliente que r
 
 ## **<u>3.- DULCE DE CHILACAYOTE</u>**
 
+[![3.jpg](https://i.postimg.cc/qR6jmb6s/3.jpg)](https://postimg.cc/Vr1qvFRv)
+
 <center><u>Ingredientes</u></center>
 - 1 chilacayote mediano
 - 1 rama de canela
@@ -117,6 +119,8 @@ El chilacayote es bajo en calorías, rico en agua y fibra, ideal para una dieta 
 El chilacayote puede cultivarse en huertos familiares con poco mantenimiento. La panela, al ser local, reduce la huella de carbono comparada con el azúcar refinado.
 
 ## **<u>4.- TORTITAS DE CILANTRO EN CALDO ROJO</u>**
+
+[![4.jpg](https://i.postimg.cc/PrVvxtRq/4.jpg)](https://postimg.cc/7f7ZtyDv)
 
 <center><u>Ingredientes</u></center>
 **Para las tortitas:**
@@ -178,6 +182,8 @@ El cilantro, jitomate, queso local y huevos son ingredientes que, si se obtienen
 
 ## **<u>5.- GUALUMBOS CON HUEVO</u>**
 
+[![5.webp](https://i.postimg.cc/65CC7gFZ/5.webp)](https://postimg.cc/bsNZWCyY)
+
 <center><u>Ingredientes</u></center>
 - 1 ½ taza de gualumbos frescos
 - 6 huevos
@@ -218,6 +224,8 @@ Los gualumbos aportan fibra, proteínas vegetales y minerales como el calcio. Ju
 El maguey es una planta endémica que no requiere fertilizantes ni pesticidas químicos, haciendo sus flores altamente sustentables. Además, el uso de manteca de origen local apoya la producción regional.
 
 ## **<u>6.- FLOR DE PALMA EN SALSA VERDE</u>**
+
+[![6.jpg](https://i.postimg.cc/02Z2HCw3/6.jpg)](https://postimg.cc/KRk21BQr)
 
 <center><u>Ingredientes</u></center>
 - 1 ½ taza de flor de palma fresca
@@ -264,6 +272,8 @@ Rica en calcio, proteínas y fibra, la flor de palma apoya la salud ósea y dige
 La flor de palma es un ingrediente autóctono de México, cultivado sin intervención industrial. Además, los tomates y chiles poblanos pueden adquirirse de huertos locales, reduciendo emisiones asociadas al transporte.
 
 ## **<u>7.- ATOLE DE ACACHUL</u>**
+
+[![7.jpg](https://i.postimg.cc/X7Z4Q0nZ/7.jpg)](https://postimg.cc/Yhw5CZGk)
 
 PERFECTO PARA ESTAS TEMPORADAS DE INVIERNO
 
