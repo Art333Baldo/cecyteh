@@ -46,6 +46,8 @@ El cultivo de habas requiere menos agua que otros granos y enriquece el suelo al
 
 ## **<u>2.- SALSA DE MORA CON XOCONOSTLE</u>**
 
+[![2.jpg](https://i.postimg.cc/wMtspZQv/2.jpg)](https://postimg.cc/4Hg3v8Mk)
+
 <center><u>Ingredientes</u></center>
 - 6 chiles moras
 - 1 diente de ajo
