@@ -15,6 +15,10 @@
 
 ## **<u>2.- SALSA DE MORA CON XOCONOSTLE</u>**
 
+[![3.png](https://i.postimg.cc/J7BKy0gk/3.png)](https://postimg.cc/nMpqgFnF)
+
+[![4.png](https://i.postimg.cc/KvSftFSs/4.png)](https://postimg.cc/7b9SyFLg)
+
 ## **<u>3.- DULCE DE CHILACAYOTE</u>**
 
 ## **<u>4.- TORTITAS DE CILANTRO EN CALDO ROJO</u>**
