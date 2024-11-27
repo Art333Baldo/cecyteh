@@ -10,16 +10,17 @@
 ## **<u>1.- ACANATZTLE</u>**
 
 [![1.png](https://i.postimg.cc/85Czc18K/1.png)](https://postimg.cc/5HZVkW2L)
-
 [![2.png](https://i.postimg.cc/MGqTk798/2.png)](https://postimg.cc/VJZ1nCy7)
 
 ## **<u>2.- SALSA DE MORA CON XOCONOSTLE</u>**
 
-[![3.png](https://i.postimg.cc/J7BKy0gk/3.png)](https://postimg.cc/nMpqgFnF)
-
+[![3.png](https://i.postimg.cc/Y9bf9DdY/3.png)](https://postimg.cc/5YQFKgd2)
 [![4.png](https://i.postimg.cc/KvSftFSs/4.png)](https://postimg.cc/7b9SyFLg)
 
 ## **<u>3.- DULCE DE CHILACAYOTE</u>**
+
+[![5.png](https://i.postimg.cc/VvJMNfrP/5.png)](https://postimg.cc/Zvh07hxw)
+[![6.png](https://i.postimg.cc/rw14sYms/6.png)](https://postimg.cc/PCqJFy1n)
 
 ## **<u>4.- TORTITAS DE CILANTRO EN CALDO ROJO</u>**
 
