@@ -33,6 +33,18 @@
 
 ## **<u>5.- GUALUMBOS CON HUEVO</u>**
 
+[![9.png](https://i.postimg.cc/N0d5vVRG/9.png)](https://postimg.cc/mcFbQmdK)
+
+[![10.png](https://i.postimg.cc/tgBzJpLL/10.png)](https://postimg.cc/Y4mFyK23)
+
 ## **<u>6.- FLOR DE PALMA EN SALSA VERDE</u>**
 
+[![11.png](https://i.postimg.cc/RV1KqvtX/11.png)](https://postimg.cc/BX6XV9MK)
+
+[![12.png](https://i.postimg.cc/zfyywNLm/12.png)](https://postimg.cc/Mc8Zxhbt)
+
 ## **<u>7.- ATOLE DE ACACHUL</u>**
+
+[![13.png](https://i.postimg.cc/hjbcTZ0W/13.png)](https://postimg.cc/ygdMzP5v)
+
+[![14.png](https://i.postimg.cc/pX1xfFKT/14.png)](https://postimg.cc/tYPLy7SQ)
